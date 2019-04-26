@@ -4,7 +4,7 @@
 and more violent. It takes a touch of genius -- and a lot of **[NOUN]** -- to 
 move in the opposite **[NOUN]**."
 
-"Reality is merely a/an **[NOUN]**, albeit a very **[ADJECTIVE]** one."
+"Reality is merely a/an illusion, albeit a very persistent one."
 
 "Technological progress is like an **[NOUN]** in the hands of a **[ADJECTIVE]** **[NOUN]**."
 
